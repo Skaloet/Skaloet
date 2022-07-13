@@ -2,7 +2,7 @@
 
 ✔️・Boring Developer That Developes dumb stuff
 
-📩・Skalot#2245 | 
+📩・Skalot#2245
 
 <hr>
 </p>
